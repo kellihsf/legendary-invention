@@ -11,3 +11,4 @@ woah that looks weird ^
 why does it keep doing that? 
 
 stahp it. now. ok tis stopped. that was weird. hi again, this is more stuff. 
+still other stuff. missed running today, i am sad. 
