@@ -10,4 +10,4 @@ the description of this repo is `for testing` so that's what i shall do.
 woah that looks weird ^
 why does it keep doing that? 
 
-stahp it. now. ok tis stopped. that was weird.
+stahp it. now. ok tis stopped. that was weird. hi again, this is more stuff. 
